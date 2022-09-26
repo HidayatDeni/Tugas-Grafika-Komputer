@@ -1,2 +1,2 @@
 # Tugas-Grafika-Komputer
-Nama : Deni Hidayat
+Deni Hidayat ( E1E120026 )
